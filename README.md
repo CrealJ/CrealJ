@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CrealJ
+- 👀 I’m interested in 3D, music, DIY stuff
+- 🌱 I’m currently learning Fusion 360, Sketchup, Cura, Studio One, Twinmotion
+- 💞️ I’m looking to collaborate on what you want :)
